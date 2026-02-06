@@ -16,7 +16,7 @@ Mission
 
 Connect with Me:
 LinkedIn Profile: 
-https://www.linkedin.com/in/suthamathi-uutm_source=share_via&utm_content=profile&utm_medium=member_android
+https://www.linkedin.com/in/suthamathi-udhayakumar
 
 HackerRank: https://www.hackerrank.com/profile/suthamathi710
 

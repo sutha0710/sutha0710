@@ -15,7 +15,7 @@ Mission
 🎯 Develop scalable backend tools and solve real-world problems.
 
 Connect with Me:
-LinkedIn Profile: https://www.linkedin.com/in/suthamathi?utm_source=share_via&utm_content=profile&utm_medium=member_android
+LinkedIn Profile: https://www.linkedin.com/in/suthamathi-u
 
 HackerRank: https://www.hackerrank.com/profile/suthamathi710
 
